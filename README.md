@@ -6,7 +6,7 @@ Email Me 👉 ✉️ **himanshupatel7845@gmail.com** For Collaboration/Project o
 - 🔭 **I’m currently working on:** KMM
 - 👯 **I’m looking to collaborate on:** KMM Projects
 - 💬 **Ask me about:** Collaboration, Tech Support
-- 📫 **How to reach me:** himanshupatel7845@gmail.co
+- 📫 **How to reach me:** himanshupatel7845@gmail.com
 - 😄 **Pronouns:** Himanshu
 - ⚡ **Fun fact:** I Love Tech and Tech Love Me
 ## 🌐 Socials:
